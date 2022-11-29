@@ -1,5 +1,5 @@
 # Biotechnology-draft
-Draft.
+Draft (I will wait for the feedback to know if I'm going through the right path or if I should change something and then keep writing and making research)
 
 
 
